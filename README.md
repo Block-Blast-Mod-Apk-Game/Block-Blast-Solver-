@@ -1,5 +1,5 @@
 # Block Blast Solver (No Ads) Latest Version 6.0.8 
-## Live Link 👉[Block Blast Solver]([https://blockblastmodapk.com/](http://blockblastmodapk.com/game/block-blast-solver))
+## Live Link 👉[Block Blast Solver](http://blockblastmodapk.com/game/block-blast-solver)
 
 
 ## Overview
